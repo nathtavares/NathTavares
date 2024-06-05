@@ -7,6 +7,4 @@
 
 ## Para falar comigo 📬
 
-nathalyatavares10@gmail.com 
-
 @nathalya_fran.6050
