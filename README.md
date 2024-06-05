@@ -6,5 +6,6 @@
 -E irei utilizar desse espaço para organização e compartilhamento dos meus projetos desenvolvidos.☕
 
 ## Para falar comigo 📬
+nathalyatavares10@gmail.com 
 
 @nathalya_fran.6050
