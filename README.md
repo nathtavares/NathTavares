@@ -10,6 +10,6 @@ nathalyatavares10@gmail.com
 
 @nathalya_fran.6050
 
+![image](https://github.com/nathtavares/NathTavares/assets/170983378/5a34e31f-fccc-4ddd-bc8a-4b4e3a853267)
 
 
-![](https://tenor.com/n02XJsd3Unh.gif)
